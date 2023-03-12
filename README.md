@@ -1,0 +1,2 @@
+# katerina
+Meni trunadzyati minalo
